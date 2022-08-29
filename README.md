@@ -6,11 +6,11 @@
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on MERCEDES-BENZ AMG
-- 🌱 I’m currently learning PROGRAMAÇÃO
-- 👯 I’m looking to collaborate on 
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 🌱 I’m currently learning PROGRAMATION
+- 👯 I’m looking to collaborate on ATIVITY OF DALS TEATCHER
+- 🤔 I’m looking for help with MAKE FRIENDS
+- 💬 Ask me about GAMES AND FORMULA ONE
+- 📫 How to reach me:SEND ME A ZAP ZAP
+- 😄 Pronouns: WHERE IS THE BATHROOM OF NON BYNARIES
+- ⚡ Fun fact: I'M NOT MISOGINO
 -->
