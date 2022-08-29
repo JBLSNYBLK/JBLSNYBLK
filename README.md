@@ -13,4 +13,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me:SEND ME A ZAP ZAP
 - 😄 Pronouns: WHERE IS THE BATHROOM OF NON BYNARIES
 - ⚡ Fun fact: I'M NOT MISOGINO
--->
