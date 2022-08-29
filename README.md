@@ -1,4 +1,7 @@
+
 ## EAE GALERINHA FROM THE DEVIL 👋
+
+EU NAO COSTUMO ESCUTAR AS ORIENTAÇÕES DO PROFESSOR DE PENSAMENTO COMPUTACIONAL.
 
 <!--
 **JBLSNYBLK/JBLSNYBLK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
