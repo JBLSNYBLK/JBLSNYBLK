@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on MERCEDES-BENZ AMG
+##- 🔭 I’m currently working on MERCEDES-BENZ AMG
 - 🌱 I’m currently learning PROGRAMATION
 - 👯 I’m looking to collaborate on ATIVITY OF DALS TEATCHER
 - 🤔 I’m looking for help with MAKE FRIENDS
